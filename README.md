@@ -1,2 +1,2 @@
-### Hi, I'm Bria! 👋 Applied AI/ML Engineer focusing on building AI solutions for a better world :)
-- 📫 Reach me at brosem42@gmail.com.
+### Hi, I'm Bria! 👋 Senior AI/ML Engineer focused on building AI solutions for a better world! :)
+- 📫 Reach me at Brianna.Mitchell42@outlook.com
